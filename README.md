@@ -1,0 +1,1 @@
+grab a pan and put it on flame and then put oil into your pan and wait for 2 minutes after this, crack your eggs and place the yolk in the pan and wait for it to fry. After 1 minute your egg will be ready and you can serve it. 
